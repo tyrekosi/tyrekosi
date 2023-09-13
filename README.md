@@ -1,1 +1,1 @@
-[![tyrekosi's GitHub stats](https://github-readme-stats.vercel.app/api?username=tyrekosi&theme=dark)](https://github.com/tyrekosi/github-readme-stats)
+I might be cringe... but I am free.
