@@ -1,1 +1,1 @@
-Professional gruvbox aficionado and private repo hoarder of insane magnitude
+Professional gruvbox aficionado and private repo hoarder of insane magnitudes
